@@ -1,0 +1,1 @@
+Aviso prévio: eu sou um desastre na cozinha!
